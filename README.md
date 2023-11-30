@@ -1,4 +1,4 @@
-### hi
+# read read read!!! 
 
 ## basics
 you may call me enigma, eni, squiffy, medkit, or by whatever skin i have on 
