@@ -7,7 +7,7 @@ medkit fictkin, i am perfectly fine with doubles though👍
 
 hk + filo, minor, use he/him only unless we're very close. inxj 5w6 (or 6w5 i'm not sure)
 
-i'm usually in the phighting area or sitting with my friends + my s/o
+i'm usually in the phighting area or sitting with my friends and/or my s/o
 
 c+h, crowns, items, ints, etc. are always appreciated, if i'm afk i highly urge you to whisper so i can thank you later
 
