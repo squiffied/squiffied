@@ -15,7 +15,7 @@ sometimes i swear/make tasteless jokes around close friends so tell me if you're
 
 feel free to friend me/ask for my disc if we've talked a little too, it takes a while for me to warm up to new people though so be patient
 
-inspo/copying is okay so long as you ask beforehand
+inspo is okay so long as you ask beforehand--don't heavy inspo or copy my skins though (idrc if you do though honestly)
 
 ## general interests
 ds games, mystery visual novels, mystery visual novels that ARE ds games, roblox, rpgmaker games, ocs, whatever falls under psychological stuff, rhythm games yadda yadda i'm into a lot of stuff so just ask
