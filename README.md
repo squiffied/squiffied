@@ -21,10 +21,10 @@ inspo is okay so long as you ask beforehand--don't heavy inspo or copy my skins 
 ds games, mystery visual novels, mystery visual novels that ARE ds games, roblox, rpgmaker games, ocs, psychology, typology, game design, coding, art, animation, rhythm games yadda yadda i'm into a lot of stuff so just ask
 
 ## shows/animation
-moral orel, bojack horseman, hfjone, bfdi/tpot, animation vs. animator, homestar runner, is law of talos/endzone/castle of nations still relevant??
+moral orel, bojack horseman, hfjone, bfdi/tpot, animator vs. animation, homestar runner, is law of talos/endzone/castle of nations still relevant??
 
 ## games
-PHIGHTING!, regretevator, gasa4, ocean terror, the backrooms [REDACTED], professor layton, ace attorney, ghost trick, zero escape, rhythm thief, ai:tsf, rhythm heaven, warioware, ib, OFF, yume nikki, yttd, MARIKINonline4, splatoon, cookie run, the stanley parable, portal
+PHIGHTING!, regretevator, gasa4, ocean terror, the backrooms [REDACTED], professor layton, ace attorney, ghost trick, zero escape, rhythm thief, ai:tsf, rhythm heaven, warioware, ib, OFF, yume nikki, witch's heart, yttd, MARIKINonline4, splatoon, cookie run, the stanley parable, portal
 
 ## do not interact
 those two kennies. /ij
