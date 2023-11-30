@@ -18,7 +18,7 @@ feel free to friend me/ask for my disc if we've talked a little too, it takes a 
 inspo is okay so long as you ask beforehand--don't heavy inspo or copy my skins though (idrc if you do though honestly)
 
 ## general interests
-ds games, mystery visual novels, mystery visual novels that ARE ds games, roblox, rpgmaker games, ocs, whatever falls under psychological stuff, rhythm games yadda yadda i'm into a lot of stuff so just ask
+ds games, mystery visual novels, mystery visual novels that ARE ds games, roblox, rpgmaker games, ocs, psychology, typology, game design, coding, art, animation, rhythm games yadda yadda i'm into a lot of stuff so just ask
 
 ## shows/animation
 moral orel, bojack horseman, hfjone, bfdi/tpot, animation vs. animator, homestar runner, is law of talos/endzone/castle of nations still relevant??
