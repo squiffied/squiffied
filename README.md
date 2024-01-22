@@ -5,9 +5,9 @@ you may call me enigma, eni, squiffy, medkit, or by whatever skin i have on
 
 medkit fictkin, i am perfectly fine with doubles though👍
 
-hk + filo, minor, use he/him only unless we're very close. inxj 5w6 (or 6w5 i'm not sure)
+hk + filo, minor, use he/him only unless we're very close. inxj sp/sx5w6
 
-i'm usually in the phighting area or sitting with my friends and/or my s/o
+i'm usually in the phighting area or sitting with my friends and/or my s/o. anyways don't start randfomly shipping me (a stranger) with whoever i'm sitting next to! it's happened multiple times before somehow
 
 c+h, crowns, items, ints, etc. are always appreciated, if i'm afk i highly urge you to whisper so i can thank you later
 
