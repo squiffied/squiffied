@@ -1,32 +1,27 @@
-# read read read!!! 
+# INTRODUCTION
+squiffy (or any other nicknames) - he/him - chinese + filo
 
-## basics
-you may call me enigma, eni, squiffy, medkit, or by whatever skin i have on 
+c+h / int ALWAYS unless stated otherwise, but ask before sending friend requests just so i know
 
-medkit fictkin, i am perfectly fine with doubles though👍
-
-hk + filo, minor, use he/him only unless we're very close. inxj sp/sx5w6
-
-i'm usually in the phighting area or sitting with my friends and/or my s/o. if i'm alone feel free to come by and say hi! also don't start randomly shipping me (a stranger) with whoever i'm sitting next to! it's happened multiple times before somehow
-
-c+h, crowns, items, ints, etc. are always appreciated, if i'm afk i highly urge you to whisper so i can thank you later
-
-sometimes i swear/make tasteless jokes around close friends so tell me if you're uncomfy
-
-feel free to friend me/ask for my disc if we've talked a little too, it takes a while for me to warm up to new people though so be patient
-
-inspo is okay so long as you ask beforehand--don't heavy inspo or copy my skins though (idrc if you do though honestly)
-
-## general interests
-ds games, mystery visual novels, mystery visual novels that ARE ds games, roblox, rpgmaker games, ocs, psychology, typology, game design, coding, art, animation, rhythm games yadda yadda i'm into a lot of stuff so just ask
-
-## shows/animation
-moral orel, bojack horseman, hfjone, bfdi/tpot, animator vs. animation, homestar runner, is law of talos/endzone/castle of nations still relevant??
-
-## games
-PHIGHTING!, regretevator, gasa4, ocean terror, the backrooms [REDACTED], professor layton, ace attorney, ghost trick, zero escape, rhythm thief, ai:tsf, rhythm heaven, warioware, ib, OFF, yume nikki, witch's heart, yttd, MARIKINonline4, splatoon, cookie run, the stanley parable, portal
-
-## do not interact
-those two kennies. /ij
-
-otherwise basic dni criteria just don't be a bad person el oh el
+i'm usually with my friend(s) and/or s/o in the p! area, feel free to interact if we're looking for chat (we're all collectively a little shy though. be patient with us)
+# INTERESTS
+<ins>current fixation</ins> - **love this a lot**
+- **<ins>anything by the behemoth</ins>** (alien hominid, castle crashers, **battleblock theater**, etc.)
+- **PHIGHTING!**
+- block tales
+- regretevator
+- **minus elevation**
+- pressure
+- **law of talos/endzone/castle of nations/etc.**
+- **professor layton**
+- rhythm heaven
+- **OFF** (like... the game. OFF game. do you know it)
+- **portal**
+- risk of rain 2
+- ULTRAKILL
+- and more that aren't listed (ask if needed)
+# DNI
+i think these are an eyesore but just to weed out the bad ones:
+- basic dni (do i need to put this here racists/homophobes/transphobes/etc.)
+- proship/comship/darkship/etc.
+- also... don't ship me if i'm sitting next to someone please 😭 it's very awkward
