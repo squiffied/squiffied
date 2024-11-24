@@ -1,5 +1,5 @@
 # INTRODUCTION
-squiffy (or any other nicknames) - he/him - chinese + filo
+squiffy (or any other nicknames) - he/him - i am onety five - chinese + filo
 
 c+h / int ALWAYS unless stated otherwise, but ask before sending friend requests just so i know
 
