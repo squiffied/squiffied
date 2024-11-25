@@ -7,12 +7,12 @@ i'm usually with my friend(s) and/or s/o in the p! area, feel free to interact i
 
 feel free to take inspo off my skins (if they're even good enough for that) just don't copy them 1-to-1 and claim you made them
 # $${\color{lightblue}INTERESTS}$$
-<ins>current fixation</ins> - **love this a lot**
+<ins>current fixation</ins> - **love this a lot** - *still getting into*
 
 if we share any of the same interests you HAVE TO interact. this is a threat /j
 - **<ins>anything by the behemoth</ins>** (alien hominid, castle crashers, **battleblock theater**, etc.)
 - **PHIGHTING!**
-- block tales
+- *block tales* 
 - regretevator
 - **minus elevation**
 - pressure
@@ -22,10 +22,10 @@ if we share any of the same interests you HAVE TO interact. this is a threat /j
 - **professor layton**
 - rhythm heaven
 - **OFF** (like... the game. OFF game. do you know it)
-- MARIKINonline
+- *MARIKINonline*
 - **portal**
-- risk of rain 2
-- ULTRAKILL
+- *risk of rain 2*
+- ***ULTRAKILL***
 - Picross Touch i fucking love Picross Touch
 - and more that aren't listed (ask if needed)
 # $${\color{lightblue}DNI / BOUNDARIES}$$
