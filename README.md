@@ -3,7 +3,7 @@ squiffy (or any other nicknames) - he/him - i am onety five 😁 - chinese + fil
 
 c+h / int ALWAYS unless stated otherwise. ask before sending friend requests just so i know
 
-i'm usually with my friend(s) and/or s/o in the p! area, feel free to interact if we're looking for chat (we're all collectively a little shy though. be patient with us)
+i'm usually whispering with my friend(s) and/or s/o in the p! area, feel free to interact if we're looking for chat (we're all collectively a little shy though. be patient with us)
 
 feel free to take inspo off my skins (if they're even good enough for that) just don't copy them 1-to-1 and claim you made them
 # $${\color{lightblue}INTERESTS}$$
