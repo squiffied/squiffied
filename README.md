@@ -8,6 +8,8 @@ i'm usually with my friend(s) and/or s/o in the p! area, feel free to interact i
 feel free to take inspo off my skins (if they're even good enough for that) just don't copy them 1-to-1 and claim you made them
 # $${\color{lightblue}INTERESTS}$$
 <ins>current fixation</ins> - **love this a lot**
+
+if we share any of the same interests you HAVE TO interact. this is a threat /j
 - **<ins>anything by the behemoth</ins>** (alien hominid, castle crashers, **battleblock theater**, etc.)
 - **PHIGHTING!**
 - block tales
