@@ -1,3 +1,4 @@
+![me and gang](meandgang.PNG)
 # $${\color{lightblue}INTRODUCTION}$$
 squiffy (or any other nicknames) - he/him - i am onety five 😁 - chinese + filo
 
