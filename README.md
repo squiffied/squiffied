@@ -1,8 +1,8 @@
 ![me and gang](meandgang.PNG)
 # $${\color{lightblue}INTRODUCTION}$$
-squiffy (or any other nicknames) - he/him - i am onety five 😁 - chinese + filo
+squiffy (or any other nicknames) - he/him - i am onety five 😁 - chinese + filipino
 
-c+h / int ALWAYS unless stated otherwise. ask before sending friend requests just so i know
+c+h / int ALWAYS unless stated otherwise (which'll probably be never). ask before sending friend requests just so i know
 
 i'm usually whispering with my friend(s) and/or s/o in the p! area, feel free to interact if we're looking for chat (we're all collectively a little shy though. be patient with us)
 
@@ -28,6 +28,7 @@ if we share any of the same interests you HAVE TO interact. this is a threat /j
 - *MARIKINonline*
 - **portal**
 - *team fortress 2*
+- the stanley parable--played the original but not ultra deluxe :^(
 - *risk of rain 2*
 - ***ULTRAKILL***
 - Picross Touch i fucking love Picross Touch
