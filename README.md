@@ -19,8 +19,6 @@ if we share any of the same interests you HAVE TO interact. this is a threat /j
 - pressure
 - **law of talos/endzone/castle of nations/etc.**
 - d figures (can i swear on my github if i'm in safe server??)
-- amphibia
-- *transformers*
 - **professor layton**
 - rhythm heaven
 - **OFF** (like... the game. OFF game. do you know it)
@@ -29,6 +27,7 @@ if we share any of the same interests you HAVE TO interact. this is a threat /j
 - 8:11
 - *MARIKINonline*
 - **portal**
+- *team fortress 2*
 - *risk of rain 2*
 - ***ULTRAKILL***
 - Picross Touch i fucking love Picross Touch
