@@ -1,6 +1,9 @@
 ![me and gang](meandgang.PNG)
 # $${\color{lightblue}INTRODUCTION}$$
-squiffy (or any other nicknames) - he/him - i am onety five 😁 - chinese + filipino
+i'm squiffy
+he/him
+i am onety five 😁
+chinese + filipino
 
 c+h / int ALWAYS unless stated otherwise (which'll probably be never). ask before sending friend requests just so i know
 
@@ -24,7 +27,7 @@ if we share any of the same interests you HAVE TO interact. this is a threat /j
 - **professor layton**
 - rhythm heaven
 - **OFF** (like... the game. OFF game. do you know it)
-- are there ib fans on pt. hello hi
+- **ib** (are there ib fans on pt. hello hi)
 - studio investigrave
 - 8:11
 - *MARIKINonline*
@@ -40,4 +43,4 @@ i think these are an eyesore but just to weed out the bad ones:
 - basic dni (do i need to put this here racists/homophobes/transphobes/etc.)
 - proship/comship/darkship/etc.
 - iwec me and dw fans (if we're friends try not to talk about the latter around me)
-- also... don't just automatically ship us if i'm sitting next to a friend please 😭 it's very awkward. don't do it
+- also don't just automatically ship us if i'm sitting next to a friend please 😭 it's very awkward. don't do it
