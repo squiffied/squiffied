@@ -3,44 +3,40 @@
 i'm squiffy
 he/him
 i am onety five 😁
-chinese + filipino
+chinese and filipino
 
-c+h / int ALWAYS unless stated otherwise (which'll probably be never). ask before sending friend requests just so i know
+c+h / int always unless stated otherwise (which'll probably be never). ask before sending friend requests
 
-i'm usually whispering with my friend(s) and/or s/o in the p! area, feel free to interact if we're looking for chat (we're all collectively a little shy though. be patient with us)
+i'm usually whispering with my friend(s) and/or s/o in the p! area or spawn, we're all collectively a little shy though. be patient with us
 
-feel free to take inspo off my skins (if they're even good enough for that) just don't copy them 1-to-1 and claim you made them
-# $${\color{lightblue}INTERESTS}$$
-<ins>current fixation</ins> - **love this a lot** - *still getting into*
+you can take inspo off my skins (if they're even good enough for that) just don't copy them 1-to-1 and claim you made them
+# $${\color{lightblue}I LIKE THESE}$$
+in general i like DS games, RPG maker games (the older ones, i don't like a lot of the more recent ones), and flash games/animations. i eat nostalgiabait for breakfast
 
-if we share any of the same interests you HAVE TO interact. this is a threat /j
-- **<ins>anything by the behemoth</ins>** (alien hominid, castle crashers, **battleblock theater**, etc.)
-- **PHIGHTING!**
-- *block tales* 
-- regretevator
-- **minus elevation**
-- pressure
+some media i like:
+- **castle crashers** (anything from the behemoth by extension)
 - **law of talos/endzone/castle of nations/etc.**
-- d figures (can i swear on my github if i'm in safe server??)
-- **henry stickmin**
-- *madness combat*
-- **professor layton**
-- rhythm heaven
-- **OFF** (like... the game. OFF game. do you know it)
-- **ib** (are there ib fans on pt. hello hi)
+- dfigures
+- henry stickmin
+- **OFF**
+- **ib**
+- witch's heart
+- your turn to die
+- MARIKINonline (still getting into)
 - studio investigrave
-- 8:11
-- *MARIKINonline*
-- **portal**
-- *team fortress 2*
-- the stanley parable--played the original but not ultra deluxe :^(
-- *risk of rain 2*
-- ***ULTRAKILL***
-- Picross Touch i fucking love Picross Touch
-- and more that aren't listed (ask if needed)
-# $${\color{lightblue}DNI / BOUNDARIES}$$
-i think these are an eyesore but just to weed out the bad ones:
-- basic dni (do i need to put this here racists/homophobes/transphobes/etc.)
+- **professor layton**
+- ace attorney
+- rhythm heaven
+- warioware
+- half-life
+- portal
+- PHIGHTING! (don't really hop on much anymore)
+- ~~honkai star rail 💔 fixated on this stupid game~~
+- more that aren't listed
+# $${\color{lightblue}I DON'T LIKE THESE}$$
+i think dnis are an eyesore, take this however you want. if i really don't wanna talk to you i'll just hide you or something :P
+- racist/homophobic/transphobic/etc. it's redundant putting this here but whatever
 - proship/comship/darkship/etc.
-- iwec me and dw fans (if we're friends try not to talk about the latter around me)
+- lowkey scared of the dandy's world/forsaken fandom (if we're friends try not to talk about the former around me)
+- okegom, tcoaal
 - also don't just automatically ship us if i'm sitting next to a friend please 😭 it's very awkward. don't do it
