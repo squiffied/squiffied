@@ -33,8 +33,8 @@ some media i like:
 - PHIGHTING! (don't really hop on much anymore)
 - ~~honkai star rail 💔 fixated on this stupid game~~
 - more that aren't listed
-# $${\color{lightblue}I DON'T LIKE THESE}$$
-i think dnis are an eyesore, take this however you want. if i really don't wanna talk to you i'll just hide you or something :P
+# $${\color{lightblue}I  ON'T LIKE THESE}$$
+i think dnis are an eyesore; take this however you want. if i really don't wanna talk to you i'll just hide you or something :P
 - racist/homophobic/transphobic/etc. it's redundant putting this here but whatever
 - proship/comship/darkship/etc.
 - lowkey scared of the dandy's world/forsaken fandom (if we're friends try not to talk about the former around me)
