@@ -2,7 +2,7 @@
 # $${\color{lightblue}INTRODUCTION}$$
 i'm squiffy
 he/him
-i am onety five 😁
+i am onety six 😁
 chinese and filipino
 
 c+h / int always unless stated otherwise (which'll probably be never). ask before sending friend requests
