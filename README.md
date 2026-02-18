@@ -32,6 +32,7 @@ some media i like:
 - portal
 - PHIGHTING! (don't really hop on much anymore)
 - ~~honkai star rail 💔 fixated on this stupid game~~
+- GODDAMMIT i'm back in the genshin hole too
 - more that aren't listed
 # $${\color{lightblue}I  ON'T LIKE THESE}$$
 i think dnis are an eyesore; take this however you want. if i really don't wanna talk to you i'll just hide you or something :P
