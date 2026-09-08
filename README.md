@@ -12,7 +12,7 @@ ask before sending friend requests
 
 i'm usually whispering with my friend(s) and/or s/o in the p! area or spawn, we're all collectively a little shy though. be patient with us
 
-
+c+h yes int yes blah blah blah
 # $${\color{lightblue}I LIKE THESE}$$
 DS games RPG maker games flash games/animations i eat nostalgiabait for breakfast
 
