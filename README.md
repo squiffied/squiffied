@@ -8,9 +8,11 @@ i am onety seven 😁
 
 chinese and filipino
 
+sp/so 5w6 514 ILI FLEV
+
 ask before sending friend requests
 
-i'm usually whispering with my friend(s) and/or s/o in the p! area or spawn, we're all collectively a little shy though. be patient with us
+i'm usually whispering with my friend(s) and/or partner near spawn, we're all collectively a little shy though. be patient with us
 
 c+h yes int yes blah blah blah
 # $${\color{lightblue}I LIKE THESE}$$
