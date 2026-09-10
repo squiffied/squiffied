@@ -1,4 +1,4 @@
-![me and gang](meandgang.PNG)
+![me and gang](meandgang.png)
 # $${\color{lightblue}INTRODUCTION}$$
 i'm squiffy
 
