@@ -8,7 +8,7 @@ i am onety seven 😁
 
 chinese and filipino
 
-INTJ sp/so 5w6 514 ILI FLEV
+INTJ sp/so 5w6 514 ILI LFEV/FLEV idfk at this point
 
 ask before sending friend requests
 
